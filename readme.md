@@ -7,3 +7,11 @@ i am self motivation person,I have a clear, logical mind with a practical approa
 -- c,c++
 -- photoshop
 -- video clipping
+
+## Worked Platforms
+
+[] ibm
+[] gapgemini
+[] tidel
+[] ggtwfst
+[] mnwjhg
