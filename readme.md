@@ -15,3 +15,8 @@ i am self motivation person,I have a clear, logical mind with a practical approa
 [] tidel
 [] ggtwfst
 [] mnwjhg
+
+
+
+#The Final scope
+   nsdwjhdwui bdhebdgywqu bxsgvdxghqw sbdhwsgsyq sgwvsgwqfy  vgwsvsq xbsvdxbwnbdj bhwbswhq bdhwsbgwh wbdhwqg
